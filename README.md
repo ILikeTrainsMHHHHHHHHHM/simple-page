@@ -1,2 +1,2 @@
-# MY RANDOM WEBSITE!
+#Welcome To The Random Site!
 
